@@ -14,3 +14,7 @@ nanao site milay
 9- recherche de text
 10- verification d'orthograph
 11- permalien => catégorie
+
+Date de recapitulation: 31/08/22
+Alarobia:
+Efa maitrise ireo tache ireo👍
